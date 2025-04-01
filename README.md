@@ -1,4 +1,4 @@
-### Hey there! I'm Sofi 👋  
+### Bonjour! I'm Sofi 👋  
 💻 **Aspiring Developer | Caffeine-Fueled Code Sorcerer**  
 
 🌱 I’ve brewed up some knowledge in:  
